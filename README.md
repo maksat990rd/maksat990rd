@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **maksat990rd@gmail.com**
 
-- ⚡ Fun fact **I can backflip! Stress-resistant! Good strategist (chess, warcraft)**
+- ⚡ Fun fact **I can backflip! Stress-resistant! Good strategist (chess, warcraft) black humor xD**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
